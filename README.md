@@ -1,3 +1,6 @@
+Hey!  Its my first time doing this so be gentle with the clubs.  I had thoughts I wanted to share about the all.
+Weather this gets interest or sneers of disdane.  Without the attempt, i will never know.
+
 Outline
 1. Introduction
 2. Fundamental Concepts
