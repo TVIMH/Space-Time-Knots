@@ -1,5 +1,4 @@
-Hey!  Its my first time doing this so be gentle with the clubs.  I had thoughts I wanted to share about the all.
-Weather this gets interest or sneers of disdane.  Without the attempt, i will never know.
+My thoughts on how the universe has gravity and an attempt at a elegant solution.  Feedback is greatly wanted and help from others.
 
 Outline
 1. Introduction
