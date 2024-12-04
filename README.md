@@ -1,5 +1,8 @@
 My thoughts on how the universe has gravity and an attempt at a elegant solution.  Feedback is greatly wanted and help from others.
 
+Written by:  Robert J. Weber
+Email: robertjweber@gmail.com
+
 Outline
 1. Introduction
 2. Fundamental Concepts
